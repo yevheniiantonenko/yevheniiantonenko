@@ -4,5 +4,5 @@
 After work:
 - 👀 I’m interested in ...diving ( One of my top dive locations in the Netherlands are Zeeland and Vinkeveense Plassen )
 - 🌱 I want to learn ... freediving
-- I love eating chocolate sweets
+- I love eating chocolate sweets anytime
 
